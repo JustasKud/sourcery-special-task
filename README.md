@@ -1,0 +1,1 @@
+The special task is published at: https://justaskud.github.io/sourcery-special-task/
